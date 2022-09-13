@@ -1,4 +1,4 @@
-![]https://tenor.com/bMiv4.gif
+![](https:github.com/dabeal02/dabeal02/blob/master//tenor.com/bMiv4.gif)
 
 ### Hi there 👋
 My name is David
